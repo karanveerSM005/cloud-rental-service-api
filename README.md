@@ -1,3 +1,8 @@
+## Author
+
+Karanveer Singh Malhi
+[LinkedIn](https://www.linkedin.com/in/karanveer-singh-malhi-750793311/)
+
 **Attempted Tasks**
 
 I have attempted the following:
